@@ -4,7 +4,7 @@
 
 <img width="20" height="20" alt="tumblr_1cb2aa20bef2dd1d64c12ebb3da46349_1eb5b807_75" src="https://github.com/user-attachments/assets/68e32054-fd3e-448b-b471-fc7e65be80d5" /> **neurodivergent + mentally ill** , <ins>iwc</ins> .
 
-not really social recently. dont approach <sup>unless VERY close friends</sup> <img width="20" height="20" alt="tumblr_9acd9841321285165dc9a7d458952470_2649a36d_75" src="https://github.com/user-attachments/assets/c35ecf26-31c0-46c1-9523-509b42b9e564" />
+not really social recently. dont approach <sup>unless very close friends</sup> <img width="20" height="20" alt="tumblr_9acd9841321285165dc9a7d458952470_2649a36d_75" src="https://github.com/user-attachments/assets/c35ecf26-31c0-46c1-9523-509b42b9e564" />
 
 
 <img width="26" height="21" alt="tumblr_365db5fc894e9d71de327667e3d038d8_6ecd195b_75" src="https://github.com/user-attachments/assets/09cdeace-de08-45c4-9335-9e26614c20a2" /> <sup>you dig my grave, and i'll dig yours.</sup> <img width="26" height="21" alt="tumblr_2ee7e7d5c57e5601ff9bd7366e0520f6_b37be48e_75" src="https://github.com/user-attachments/assets/27132b9c-8bf7-4ac4-bfad-91fe995ac046" />
