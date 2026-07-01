@@ -1,3 +1,3 @@
-<p <img width="736" height="414" alt="wallpaper" src="https://github.com/user-attachments/assets/7a5450a4-17fe-453b-a386-24e16e5c19af" />
-
-
+<p
+![Alt text](https://github.com/misplacedintime/misplacedintime/blob/df03aa6be123a545c5cb024a4952e879918e9f1a/wallpaper.jpg)
+/>
