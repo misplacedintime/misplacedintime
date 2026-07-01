@@ -4,6 +4,6 @@
 
 **neurodivergent + mentally ill** , <ins>always iwc</ins>
 
-not really social recently. dont approach <sup>unless close friends</sup>
+not really social recently. dont approach <sup>unless VERY close friends</sup>
 
 ![Alt text](https://github.com/misplacedintime/misplacedintime/blob/fdb2ddc5cca85d9df52018b9b437265647ff6d45/tumblr_cb4c83258495993c4f2d1a97ddbf11be_7eda4963_1280.png)
