@@ -1,2 +1,2 @@
-![Alt text](https://github.com/misplacedintime/misplacedintime/blob/df03aa6be123a545c5cb024a4952e879918e9f1a/wallpaper.jpg)
 
+![Alt text](https://github.com/misplacedintime/misplacedintime/blob/0521123d104e5414b7c4639df4b8adaf114b61a1/pobrane%20(32).jpg)
