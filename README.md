@@ -1,5 +1,5 @@
 ![Alt text](https://github.com/misplacedintime/misplacedintime/blob/fdb2ddc5cca85d9df52018b9b437265647ff6d45/tumblr_ae529f1f6664ff32e21c2a22546a1383_b49ed555_1280.png)
-
+<sup>i love the binding of isaac btw haha lol did you know i love the binding of isaac<sup>
 ![Alt text](https://github.com/misplacedintime/misplacedintime/blob/0521123d104e5414b7c4639df4b8adaf114b61a1/pobrane%20(32).jpg)
 
 <img width="20" height="20" alt="tumblr_1cb2aa20bef2dd1d64c12ebb3da46349_1eb5b807_75" src="https://github.com/user-attachments/assets/68e32054-fd3e-448b-b471-fc7e65be80d5" /> **neurodivergent + mentally ill** , <ins>iwc</ins> .
