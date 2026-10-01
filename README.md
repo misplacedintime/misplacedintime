@@ -11,5 +11,3 @@ feeling unwell lately . mostly dniuf <img width="20" height="20" alt="tumblr_9ac
 
 
 ![Alt text](https://github.com/misplacedintime/misplacedintime/blob/fdb2ddc5cca85d9df52018b9b437265647ff6d45/tumblr_cb4c83258495993c4f2d1a97ddbf11be_7eda4963_1280.png)
-
-<img width="502" height="482" alt="image" src="https://github.com/user-attachments/assets/29c74025-611f-4147-9f0d-bfc0869ad4e5" />
